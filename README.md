@@ -6,7 +6,7 @@ owo视频发布页<br/>
 本月域名列表<br/>
 owo视频最新地址： 🧡[https://owo19.cc](https://www.owo19.cc)🧡
 
-owo视频备用域名1：🧡[https://owo20.cc](https://wwww.owo20.cc)🧡
+owo视频备用域名1：🧡[https://owo20.cc](https://www.owo20.cc)🧡
 
 owo视频备用域名2：🧡[https://owo21.cc](https://www.owo21.cc)🧡
 
