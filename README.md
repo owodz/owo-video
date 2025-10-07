@@ -8,7 +8,7 @@ owo视频最新地址： 🧡[https://owo28.cc](https://www.owo28.cc)🧡
 
 owo视频备用域名1：🧡[https://owo29.cc](https://www.owo29.cc)🧡
 
-owo视频备用域名2：🧡[https://owo30.cc](https://www.owo30.cc)🧡
+owo视频备用域名2：🧡[https://owo32.cc](https://www.owo32.cc)🧡
 
 
 
